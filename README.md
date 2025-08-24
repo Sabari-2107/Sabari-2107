@@ -1,3 +1,5 @@
+[![alt text](https://hostlink.site/TP28m2)](https://hostlink.site/TP28m2)
+
 # 💫 About Me:𝐒𝐀𝐁𝐀𝐑𝐈𝐍𝐀𝐓𝐇𝐀𝐍. 𝐊
 I'm currently doing a roll of student in NPR college👨‍🎓<br>I'm like to collaborate my skills  with ZOHO🧑‍💻<br>I'm doing learn skills ,there are🙋<br>                       1.𝘔𝘈𝘙𝘒𝘋𝘖𝘞𝘕 and<br>                      2.𝘚𝘖𝘍𝘛 𝘚𝘒𝘐𝘓𝘓𝘚<br>My short term goal is, 🤏<br>                        𝘔𝘈𝘒𝘌 𝘈 𝘐𝘕𝘛𝘌𝘙𝘕𝘚𝘏𝘐𝘗 𝘞𝘐𝘛𝘏 𝘊𝘖𝘔𝘗𝘈𝘕𝘐𝘌𝘚🏬<br>My long term goal is,💪<br>                        𝗛𝗮𝘃𝗲 𝗮 𝗵𝗶𝗴𝗵𝗲𝗿 𝗽𝗼𝘀𝗶𝘁𝗶𝗼𝗻 𝗶𝗻 𝘀𝗮𝗺𝗲 𝗰𝗼𝗺𝗽𝗮𝗻𝗶𝗲🏬.
 
